@@ -1,4 +1,4 @@
-# 
+# متقدم cross-margin trading bot قوالب لـ Mac OS | ذكي cross-margin trading bot قوالب لـ PC Windows. مع فهرسة البلوكشين و إدارة المخاطر — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
